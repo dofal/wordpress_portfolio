@@ -6,7 +6,7 @@ I have 2 years exprerience with web development in Wordpress. I worked with visu
 
 https://frutafarm.cz <br>
 https://www.war-zone.cz <br>
-https://www.rati.cz
-https://dachreal.cz
-https://salon-beatrice.cz
-https://myvap.cz
+https://www.rati.cz <br>
+https://dachreal.cz <br>
+https://salon-beatrice.cz <br>
+https://myvap.cz 
