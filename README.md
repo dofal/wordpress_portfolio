@@ -9,4 +9,6 @@ https://www.war-zone.cz <br>
 https://www.rati.cz <br>
 https://dachreal.cz <br>
 https://salon-beatrice.cz <br>
-https://myvap.cz 
+https://www.pisarikovapise.cz <br>
+https://www.snoheta.cz
+
